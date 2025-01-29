@@ -1,4 +1,1 @@
-![Untitled126_20250111205533](https://github.com/user-attachments/assets/05a48556-5ead-46f7-acba-436d865d98cc)
-
-
-**read rentry plss**
+![Image](https://github.com/user-attachments/assets/603b80ba-dee6-41c9-aa6b-247f99b68e93)
