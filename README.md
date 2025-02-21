@@ -1,2 +1,1 @@
-![Image](https://github.com/user-attachments/assets/4dcd7b53-5bad-4d8d-b3fa-76becbb4de1b)
-ㅤㅤㅤㅤㅤhai.... Im codin.. ㅤ
+![Image](https://github.com/user-attachments/assets/9d56c112-5e8e-4c74-a6b1-55f8706ffb8f)
