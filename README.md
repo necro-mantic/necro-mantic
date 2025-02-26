@@ -1,1 +1,9 @@
-![Image](https://github.com/user-attachments/assets/04e85642-5d2c-466c-9ce1-646e9ea5f075)
+![Image](https://github.com/user-attachments/assets/eb69534e-8e01-4558-a996-b2ed4acd8790)
+        
+
+ㅤㅤㅤㅤㅤ ㅤㅤㅤ𝄞
+   ㅤㅤㅤ  **schizophrenia/adhd/infp/anxiety**
+
+
+
+
