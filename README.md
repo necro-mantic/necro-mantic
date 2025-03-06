@@ -1,2 +1,1 @@
-Schizophrenia/infp/adhd/anxiety/dyslexic/autistic 
-![Image](https://github.com/user-attachments/assets/a9e270b7-a046-43ba-9219-f97f1aee9043)
+![Image](https://github.com/user-attachments/assets/67598650-8e8e-4c71-86d9-0ab6827a4db0)
