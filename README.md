@@ -7,9 +7,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤminorrrr
 
-ㅤㅤㅤi love mu friendssssssss
+Read ts> https://rentry.co/Hospitalvication
 
-ㅤㅤAnimatic/clownpiece/rainbow  
+ㅤAnimatic/clownpiece/rainbow ass. 
 ㅤㅤㅤㅤㅤㅤdie hard fannㅤ
 
 ![Image](https://github.com/user-attachments/assets/7c634326-43d1-4f3e-8f11-ef571ef1a892)
