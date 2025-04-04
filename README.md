@@ -1,6 +1,7 @@
 ![Image](https://github.com/user-attachments/assets/68091c1c-8f32-4d09-a2c2-2b30907963c2)
 ㅤYes this is for ponytown
-
+ㅤㅤㅤ sometimes semiofftab/offtab, most likey to have late responses or no responses 
+ㅤㅤㅤㅤ🌟
 
 Hi my name is codin or fish
 Im nonbinary!! I go by they/them or anyprns! I perfer she/it
@@ -10,6 +11,10 @@ C+h is free!! Unless on.a bad mood or uncomfy (unless friends)
 
 Yes i rp, buttt plssss dont force me tooo join in yallsssss🌚
 Yeah i can be seen EVERYWHERE in pt, i wander evrywhere
+
+I sometimes quote people, **PLS** tell me if u dont like it,, 
+
+
 
 I LOVE clownpiece, animatic, and rainbow assortment 🤤ㅤㅤ 
 
