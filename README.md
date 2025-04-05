@@ -4,6 +4,7 @@
 
 
 ㅤㅤㅤㅤ🌟bad mood= status(🌙), nv
+ㅤㅤㅤ🌻if you see ny status is busy (⛔), it means im semi/offtab, or onlineb at the same time lwol
 
 Hi my name is codin or fish
 Im nonbinary!! I go by they/them or anyprns! I perfer she/it
