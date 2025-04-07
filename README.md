@@ -24,3 +24,6 @@ I LOVE clownpiece, animatic, and rainbow assortment 🤤ㅤㅤ
 ![Image](https://github.com/user-attachments/assets/7c634326-43d1-4f3e-8f11-ef571ef1a892)
 ![Image](https://github.com/user-attachments/assets/4eed8059-2c68-4fa2-b9c8-75ccbb928f9e)
 ![Image](https://github.com/user-attachments/assets/b992a017-567a-49a1-a0c9-06ec980e4fae)
+![Image](https://github.com/user-attachments/assets/e2c0f2db-49f0-4452-b2f9-6f73c7c24f3e)
+![Image](https://github.com/user-attachments/assets/b0a4e1ec-15ed-43b8-8129-1fe64546401f)
+   ㅤㅤㅤ ****here comes the hAND!!!!! 0_o****
