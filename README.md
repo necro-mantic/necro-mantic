@@ -5,6 +5,7 @@
 
 ㅤㅤㅤㅤ🌟bad mood = nv, offline mode
 ㅤㅤㅤ🌻if you see ny status is busy (⛔), it means im semi/offtab, or onlineb at the same time lwol
+(🌙) = dont want to be seen on menu or semiafk/semiofftab
 
 Hi my name is codin or fish
 Im nonbinary!! I go by they/them or anyprns! I perfer she/it
