@@ -2,4 +2,4 @@
 Feel free to int = D and c*h, sorry if act really weird towards you i drink alot of coffee and get highly caffienated irl (i shake and tweak), always iwcare and iwc, i use emoticons to represent my favorite character (  =) , = ( , L_L , etc.) read straw for mor. ...
 
 I have different sides ahh dude
-![Image](https://github.com/user-attachments/assets/853330d8-ec18-421d-9e54-e4ea674c3303) <-- i am nonbinary, my gender will not be identify whenever if u thjnk im a gjirl or a boy, 
+![Image](https://github.com/user-attachments/assets/853330d8-ec18-421d-9e54-e4ea674c3303) <-- i am nonbinary, my gender will not be identify whenever if u thjnk im a gjirl or a boy because of how i act
