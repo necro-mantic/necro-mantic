@@ -7,7 +7,7 @@ I have different sides ahh dude
 
 Do NOT copy my **shading** i seeenn alot of people tryunf too,, (except for my cool dude @Printerbattle, my shading was inspired by them) 
 
-Small inspo are okay!! big inspo are up for an execution for me
+Small inspo are okay!! big inspo are up for an execution from me
 
 Iwecare/caution 
 
