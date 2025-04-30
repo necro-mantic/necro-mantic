@@ -3,3 +3,6 @@ Feel free to int = D and c*h, sorry if act really weird towards you i drink alot
 
 I have different sides ahh dude
 ![Image](https://github.com/user-attachments/assets/853330d8-ec18-421d-9e54-e4ea674c3303) dsshhsjhf
+
+
+Do NOT copy my **shading** i seeenn alot of people tryunf too,, (except for my cool dude @Printerbattle, my shading was inspired by them) 
