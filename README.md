@@ -5,4 +5,6 @@ Small inspo are okay!! big inspo are up for an execution from me
 
 Iwecare/caution 
 
+![Image](https://github.com/user-attachments/assets/9195fa4c-73e1-4d39-9f0a-3b62b3109f15)
+
 STOP CALLING ME CODING! 
