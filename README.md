@@ -8,7 +8,7 @@
 
 I creep alot of people so iwc
 
-I have ptsd infp istp
+I have ptsd iistp
 Schizophreni.c and dementia and alzhiemers 
 
 
