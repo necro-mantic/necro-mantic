@@ -6,7 +6,14 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-No wonder why they don't talk to me, they all been waiting for someone thinking they were dead, I hope they see me dead next time =] 
+ahhhh pt stufd 
+ㅤㅤpretty please iwcuf I am weird sometimes 
+ㅤㅤㅤ caffienated sometimes, yes I dirnk coffee alot 
+ㅤㅤㅤ i add people who I talked befor
+
+
+
+ㅤㅤㅤㅤㅤㅤc*h freely =] 
 
 
 
@@ -14,7 +21,7 @@ No wonder why they don't talk to me, they all been waiting for someone thinking 
 
 
 I have ptsd iistp
-Schizophreni.c and dementia and alzhiemers =)))) 
+Schizophreni.c and dementia and alzhiemers=) 
 
 
 
