@@ -6,10 +6,15 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-I creep alot of people so iwcuf
+No wonder why they don't talk to me, they all been waiting for someone thinking they were dead, I hope they see me dead next time =] 
+
+
+
+
+
 
 I have ptsd iistp
-Schizophreni.c and dementia and alzhiemers 
+Schizophreni.c and dementia and alzhiemers =)))) 
 
 
 
