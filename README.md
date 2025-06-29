@@ -6,10 +6,7 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-ahhhh pt stufd 
-ㅤㅤpretty please iwcuf I am weird sometimes 
-ㅤㅤㅤ caffienated sometimes, yes I dirnk coffee alot 
-ㅤㅤㅤ i add people who I talked befor
+
 
 
 
