@@ -17,8 +17,10 @@
 
 
 
-I have ptsd iistp
-Schizophreni.c and dementia and alzhiemers=) 
+Some people avoid talkinf to me becausr i act weird and negative
+
+
+Sczhio, ptsd×istp
 
 
 
