@@ -1,5 +1,4 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image](https://github.com/user-attachments/assets/6db5181e-28c2-4121-86cd-bb31020c6eaf)
-
+[](![Image](https://github.com/user-attachments/assets/c6dae5ec-3e67-4679-8bba-a9818b38ab43)) 
 
 
 
@@ -10,17 +9,18 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤc*h freely =] 
+ㅤㅤㅤㅤㅤㅤ 
+hkiiii,,, call me codin, animatic or other kins 
+
+ehh estp/entp, schizo 😮
 
 
 
 
 
 
-Some people avoid talkinf to me becausr i act weird and negative
 
 
-Sczhio, ptsd×istp
 
 
 
