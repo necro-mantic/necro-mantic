@@ -12,8 +12,9 @@
 ㅤㅤㅤㅤㅤㅤ 
 hkiiii,,, call me codin, animatic or other kins 
 
-ehh estp/entp, schizo 😮
+ehh entp, schizo 😮
 
+i am sensitive to humanity sorry not sorry
 
 
 
