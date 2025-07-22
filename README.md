@@ -12,7 +12,10 @@
 ㅤㅤㅤㅤㅤㅤ 
 hkiiii,,, call me codin, animatic or other kins 
 
-ehh entp, schizo 😮
+I have ptsd and schzio sorta
+
+ENTP
+
 
 i am sensitive to humanity sorry not sorry
 
