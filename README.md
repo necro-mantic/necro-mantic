@@ -14,7 +14,7 @@ hkiiii,,, call me codin, animatic or other kins
 
 I have ptsd and schzio 
 
-ENTP orrrrrrrrrrrrrrrrrrrr ist p
+INFP OR ENTP
 
 
 i am sensitive to humanity sorry not sorry
