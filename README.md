@@ -12,9 +12,9 @@
 ㅤㅤㅤㅤㅤㅤ 
 hkiiii,,, call me codin, animatic or other kins 
 
-I have ptsd and schzio sorta
+I have ptsd and schzio 
 
-ENTP
+ENTP orrrrrrrrrrrrrrrrrrrr ist p
 
 
 i am sensitive to humanity sorry not sorry
