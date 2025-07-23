@@ -19,7 +19,7 @@ ENTP orrrrrrrrrrrrrrrrrrrr ist p
 
 i am sensitive to humanity sorry not sorry
 
-
+i ofteb act odd imskrry📞📞📞📞📞📞
 
 
 
