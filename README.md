@@ -10,16 +10,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤ 
-hkiiii,,, call me codin, animatic or other kins 
-
-I have ptsd and schzio 
-
-INFP OR ENTP
-
-
-i am sensitive to humanity sorry not sorry
-
-i ofteb act odd imskrry📞📞📞📞📞📞
+⚪➕👁️,,, rr
 
 
 
