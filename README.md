@@ -7,7 +7,8 @@
 
 
 
-
+ㅤㅤ SCHIZOPHRENIA + PTSD
+      DEMENTIA OR ALZHIEMERS 
 
 ㅤㅤㅤㅤㅤㅤ 
 
