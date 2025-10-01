@@ -1,3 +1,5 @@
+# MAD TALE - MIMIZU FT. YI XI
+
 君の心の痛みとか
 2秒ズレた時計とか
 他人が向ける視線とか 全部
@@ -66,5 +68,5 @@ I love the process of you going mad
 あなたを待っている
 あなたを待っている
 
-- # MAD TALE - MIMIZU
+
 
